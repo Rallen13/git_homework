@@ -5,4 +5,3 @@ be an active listener and participate more
 my lovely wife Casey has been a great tutor and supporter through mod 0 thus far
 
 this is hard
-this is frustrating
